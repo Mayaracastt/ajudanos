@@ -1,0 +1,2 @@
+# ajudanos
+Me ajudem
